@@ -12,3 +12,6 @@ My goal is to grow as an AI engineer and contribute to meaningful and impactful 
 - Artificial Intelligence (AI)
 - Data Analysis
 - Problem Solving
+
+- My YouTube Chanel : https://www.youtube.com/@AMXLabs
+- x Account : https://x.com/alimohammaddnri
